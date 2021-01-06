@@ -1,0 +1,8 @@
+- 1/2 cup pf butter
+- 1 cup of white sugar
+- 2 eggs
+- 1 teaspoon of vanilla extract
+- 1/3 cup of unsweetened cocoa powder
+- 1/2 cup of all-purpose flower
+- 1/4 teaspoon of salt
+- 1/4 teaspoon of baking powder
